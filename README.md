@@ -4,5 +4,4 @@
 ## SOCIAL LINKS
 - **[Roblox Profile](https://www.roblox.com/users/136555894)**
 - **[Roblox Group](https://www.roblox.com/groups/14428521)**
-- **[Steam Profile](https://steamcommunity.com/id/Atomism)**
 - **[YouTube Profile](https://www.youtube.com/@doublewhammystudios)**
