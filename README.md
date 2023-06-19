@@ -4,5 +4,5 @@
 ## SOCIAL LINKS
 - **[Roblox Group](https://www.roblox.com/groups/14428521)**
 - **[Roblox Profile](https://www.roblox.com/users/136555894)**
-- **[YouTube Profile](https://www.youtube.com/@doublewhammystudios)**
 - **[Twitch Profile](https://www.twitch.tv/doublewhammystudios)**
+- **[YouTube Profile](https://www.youtube.com/@doublewhammystudios)**
