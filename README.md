@@ -1,5 +1,5 @@
 ## INTRODUCTION
-**Welcome to the official GitHub repository of Double Whammy Studios! This is the place where you can discover open-sourced code from some of our biggest games, as well as be among the first to test out personal projects that our talented developers are working on. By exploring this repository, you'll gain access to a wealth of valuable resources that can help you learn about game development, improve your programming skills, and even contribute to ongoing projects. So whether you're a seasoned developer or just starting out, we invite you to join our community and dive into the exciting world of game development with Double Whammy Studios!**
+**Welcome to the official GitHub account for Double Whammy Studios! Here, we are dedicated to inspiring imagination one pixel at a time!**
 
 ## SOCIAL LINKS
 - **[Roblox Group](https://www.roblox.com/groups/14428521)**
