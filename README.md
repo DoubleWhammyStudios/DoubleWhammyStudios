@@ -1,5 +1,5 @@
 ## INTRODUCTION
-**Welcome to the official GitHub account for Double Whammy Studios! Here, we are dedicated to inspiring imagination one pixel at a time!**
+**Welcome to the official GitHub account for Double Whammy Studios!**
 
 ## SOCIAL LINKS
 - **[Roblox Group](https://www.roblox.com/groups/14428521)**
