@@ -5,4 +5,5 @@
 - **[Roblox Group](https://www.roblox.com/groups/14428521)**
 - **[Roblox Account](https://www.roblox.com/users/136555894)**
 - **[Twitch Account](https://www.twitch.tv/doublewhammystudios)**
+- **[Twitter Account](https://twitter.com/DoubleWhammyDev)**
 - **[YouTube Account](https://www.youtube.com/@doublewhammystudios)**
